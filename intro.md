@@ -1,4 +1,4 @@
-ichidai hitorime  cat
+ichidai hitorime  cat dog
 ichidai hitorime  lol
 badminton  
 
