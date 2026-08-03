@@ -1,2 +1,5 @@
-ichidai hitorime
-badminton
+ichidai hitorime  
+badminton  
+
+onakasuita
+ra-men
