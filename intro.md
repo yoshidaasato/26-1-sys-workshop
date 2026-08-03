@@ -1,4 +1,4 @@
-ichidai hitorime  
+ichidai hitorime  lol
 badminton  
 
 onakasuita  
