@@ -1,10 +1,10 @@
+ichidai hitorime  cat
 ichidai hitorime  lol
 badminton  
 
-onakasuita  
-ra-men  
-  
-yakinikuikitai  
-  
-tea  
-  
+onakasuita
+ra-men
+
+yakinikuikitai
+
+tea
